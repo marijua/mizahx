@@ -1,1 +1,1 @@
-Hi I'm Allahınız
+instagram.com/ctkmizaah
